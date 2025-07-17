@@ -1,1 +1,1 @@
-# IndivualProject_COMP3125
+# IndividualProject_COMP3125
